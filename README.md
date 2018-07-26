@@ -1,2 +1,2 @@
 # super-duper-octo-disco
-First respository
+I like guitars!
